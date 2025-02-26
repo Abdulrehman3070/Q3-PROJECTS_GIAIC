@@ -1,2 +1,2 @@
 # Q3-PROJECTS_GIAIC
-All Quarter # Projects Here
+All Quarter 3 Projects Here
